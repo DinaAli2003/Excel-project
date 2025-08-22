@@ -11,6 +11,4 @@ Dina Ali – Aspiring Data Analyst
 
 Email: dinaelharedy00@gmail.com
 
-LinkedIn: https://www.linkedin.com/in/dina-ali-0573a724b?
-utm_source=share&utm_campaign=share
-_via&utm_content=profile&utm_medium=android_app
+LinkedIn: https://www.linkedin.com/in/dina-ali-0573a724b?utm_source=share&utm_campaign=share_via&utm_content=profile&utm_medium=android_app
